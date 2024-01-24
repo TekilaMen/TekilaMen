@@ -1,5 +1,5 @@
 # 💫 About Me:
-En tant qu'étudiant passionné par les nouvelles technologies, je suis actuellement à la recherche d'une alternance afin de me spécialiser dans mon domaine et de continuer à construire mon avenir professionnel en travaillant en étroite collaboration avec desexperts, tout en mettant à profit mes compétences techniques et ma créativité.
+En tant qu'étudiant passionné par les nouvelles technologies, je suis actuellement à la recherche d'une alternance afin de me spécialiser dans mon domaine et de continuer à construire mon avenir professionnel en travaillant en étroite collaboration avec des experts, tout en mettant à profit mes compétences techniques et ma créativité.
 
 
 ## 🌐 Socials:
