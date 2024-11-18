@@ -1,5 +1,5 @@
 # 💫 About Me:
-En tant qu'étudiant passionné par les nouvelles technologies.
+étudiant passionné par les nouvelles technologies.
 
 
 ## 🌐 Socials:
